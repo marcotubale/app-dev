@@ -1,6 +1,6 @@
 # My favorite Artist
 
-## Christopher Maurice Brown a.k.a **Chris Brown**
+## Christopher Maurice Brown a.k.a **_Chris Brown_**
 
 
 
